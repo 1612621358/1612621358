@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Dinesh
+- 👀  hacking 
+- 🌱 I’m B.tech #
+- 💞️ I’m looking money
+- 📫 impossible
+- 😄 BE LIKE WATER
+- <NO like moye moye.
