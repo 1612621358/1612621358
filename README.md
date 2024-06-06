@@ -1,5 +1,2 @@
-- 👋 Hi, I’m Dinesh 
-- 🌱  B.tech #
-- 💞️  looking money
-- 📫 any think is possible
-- 😄 BE LIKE WATER
+- 👋  I’m Dinesh 
+- 🌱  B.tech 
